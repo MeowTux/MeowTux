@@ -2,7 +2,7 @@
 
 Welcome To My profile Github! 
 
-**i'm** Moly or Aaaauutan! i'm Just A normal developer thats interest Ai and python language. 
+**i'm** Moly or MeoWTux i'm Just A normal developer thats interest Ai and python language. 
 
 ## thank you for read this ♡
 
